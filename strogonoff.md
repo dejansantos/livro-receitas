@@ -26,14 +26,14 @@
 
 ## Modo de Preparo 
 
- -  Em uma panela, misture o frango, o alho, a maionese, o sal e a pimenta.
+ 1 Em uma panela, misture o frango, o alho, a maionese, o sal e a pimenta.
 
- - Em uma frigideira grande, derreta a manteiga e doure a cebola.
+ 2 Em uma frigideira grande, derreta a manteiga e doure a cebola.
 
- - Junte o frango temperado até que esteja dourado.
+ 3 Junte o frango temperado até que esteja dourado.
 
- - Adicione os cogumelos, o ketchup e a mostarda.
+ 4 Adicione os cogumelos, o ketchup e a mostarda.
 
- - Incorpore o creme de leite e retire do fogo antes de ferver.
+ 5 Incorpore o creme de leite e retire do fogo antes de ferver.
 
- - Sirva com arroz branco e batata palha.
+ 6 Sirva com arroz branco e batata palha.
