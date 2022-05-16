@@ -2,5 +2,4 @@
 
 ### Olá! Bem vindo ao meu livro de receitas
 
- - Strogonoff de grango 🐔
- 
+ - Strogonoff de frango 🐔
